@@ -26,7 +26,6 @@ A graduate of Davao del Norte State College who blends technical logic with crea
 ---
 
 ### 📫 Connect with me
-* **LinkedIn:** [https://www.linkedin.com/public-profile/settings/?trk=d_flagship3_profile_self_view_public_profile&lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base%3BG%2Bd6Oc3jQXmWwV8yetHrZA%3D%3D]
 [**LinkedIn**](https://www.linkedin.com/public-profile/settings/?trk=d_flagship3_profile_self_view_public_profile&lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base%3BG%2Bd6Oc3jQXmWwV8yetHrZA%3D%3D])
 * **Portfolio:** [Insert your Website]
 
